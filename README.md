@@ -1,2 +1,0 @@
-# sky-scout
-# sky-scout
